@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Bishesh22010
-- 👀 I’m interested in Cyber Security and Web Development.. 
 - 🌱 I’m currently learning Bsc.It from Charotar University of Science and Technology.
 - 📫 How to reach me My Email = v3n0m.b@gmail.com , Ph no = +918734847246 , LinkedIn = Bishesh Bhattacharjee.
 
